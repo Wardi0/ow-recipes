@@ -1,2 +1,2 @@
 * Ideas from Oli W
-## 5th Dec 2024
+## 5 th December 2024, Thursday
